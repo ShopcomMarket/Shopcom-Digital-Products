@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Celestial Angel Meditation Sound download link : (Product Price : 10 $) (Size : 165 MB)
+https://www.shopcom.tn/product/celestial-angel-meditation-sound/download
+
 D5-Render-V2.6.1.0423 download link : (Product Price : Free) (Size : 1.41 GB)
 https://www.shopcom.tn/product/d5-render-v2-6-1-0423/download
 
@@ -200,6 +203,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Celestial Angel Meditation Sound torrent download link : (Product Price : 10 $) (Size : 165 MB)
+https://www.shopcom.tn/product/celestial-angel-meditation-sound/torrent-download
 
 D5-Render-V2.6.1.0423 torrent download link : (Product Price : Free) (Size : 1.41 GB)
 https://www.shopcom.tn/product/d5-render-v2-6-1-0423/torrent-download
