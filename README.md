@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Om kalthoum Best Songs download link : (Product Price : 25 $) (Size : 7.71 GB)
+https://www.shopcom.tn/product/om-kalthoum-best-songs/download
+
 Celestial Angel Meditation Sound download link : (Product Price : 10 $) (Size : 165 MB)
 https://www.shopcom.tn/product/celestial-angel-meditation-sound/download
 
@@ -203,6 +206,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Om kalthoum Best Songs torrent download link : (Product Price : 25 $) (Size : 7.71 GB)
+https://www.shopcom.tn/product/om-kalthoum-best-songs/torrent-download
 
 Celestial Angel Meditation Sound torrent download link : (Product Price : 10 $) (Size : 165 MB)
 https://www.shopcom.tn/product/celestial-angel-meditation-sound/torrent-download
