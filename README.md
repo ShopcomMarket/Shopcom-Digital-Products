@@ -409,4 +409,4 @@ SolidWorks 2023 SP5.0 Premium torrent download link : (Product Price : 11,023 $)
 https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/torrent-download
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
