@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Adhkar Islamia - أذكار إسلامية download link : (Product Price : Free) (Size : 1.41 GB)
+https://www.shopcom.tn/product/adhkar-islamia/download ‎
+
 Om kalthoum Best Songs download link : (Product Price : 25 $) (Size : 7.71 GB)
 https://www.shopcom.tn/product/om-kalthoum-best-songs/download
 
@@ -206,6 +209,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Adhkar Islamia - أذكار إسلامية torrent download link : (Product Price : Free) (Size : 1.41 GB)
+https://www.shopcom.tn/product/adhkar-islamia/torrent-download ‎
 
 Om kalthoum Best Songs torrent download link : (Product Price : 25 $) (Size : 7.71 GB)
 https://www.shopcom.tn/product/om-kalthoum-best-songs/torrent-download
