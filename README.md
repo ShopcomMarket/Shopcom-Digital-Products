@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Islamic dua - دعاء إسلامي download link : (Product Price : Free) (Size : 573 MB)
+https://www.shopcom.tn/product/islamic-dua/download
+
 Yanni Live ! The Concert Event download link : (Product Price : 15 $) (Size : 1.72 GB)
 https://www.shopcom.tn/product/yanni-live-the-concert-event/download ‎
 
@@ -212,6 +215,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Islamic dua - دعاء إسلامي download link : (Product Price : Free) (Size : 573 MB)
+https://www.shopcom.tn/product/islamic-dua/torrent-download
 
 Yanni Live ! The Concert Event torrent download link : (Product Price : 15 $) (Size : 1.72 GB)
 https://www.shopcom.tn/product/yanni-live-the-concert-event/torrent-download
