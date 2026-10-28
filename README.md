@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Taksim Trio - Taksim Trio download link : (Product Price : 5 $) (Size : 88.8 MB)
+https://www.shopcom.tn/product/taksim-trio-taksim-trio/download
+
 Grand Theft Auto V download link : (Product Price : 15 $) (Size : 117 GB)
 https://www.shopcom.tn/product/grand-theft-auto-v/download
 
@@ -218,6 +221,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Taksim Trio - Taksim Trio torrent download link : (Product Price : 5 $) (Size : 88.8 MB)
+https://www.shopcom.tn/product/taksim-trio-taksim-trio/torrent-download
 
 Grand Theft Auto V torrent download link : (Product Price : 15 $) (Size : 117 GB)
 https://www.shopcom.tn/product/grand-theft-auto-v/torrent-download
