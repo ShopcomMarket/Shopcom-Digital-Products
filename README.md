@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Sahih Al-Bukhari – صحيح البخاري PDF download link : (Product Price : 19 $) (Size : 148 MB)
+https://www.shopcom.tn/product/sahih-al-bukhari-pdf/download
+
 Taksim Trio - Taksim Trio download link : (Product Price : 10 $) (Size : 88.8 MB)
 https://www.shopcom.tn/product/taksim-trio-taksim-trio/download
 
@@ -221,6 +224,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Sahih Al-Bukhari – صحيح البخاري PDF torrent download link : (Product Price : 19 $) (Size : 148 MB)
+https://www.shopcom.tn/product/sahih-al-bukhari-pdf/torrent-download
 
 Taksim Trio - Taksim Trio torrent download link : (Product Price : 10 $) (Size : 88.8 MB)
 https://www.shopcom.tn/product/taksim-trio-taksim-trio/torrent-download
