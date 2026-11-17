@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Forza Horizon 5 Premium Edition : (Product Price : 100 $) (Size : 107.22 GB)
+https://www.shopcom.tn/product/forza-horizon-5-premium-edition/download
+
 Yanni Tribute download link : (Product Price : 12 $) (Size : 1.41 GB)
 https://www.shopcom.tn/product/yanni-tribute-1997/download
 
@@ -227,6 +230,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Forza Horizon 5 Premium Edition : (Product Price : 100 $) (Size : 107.22 GB)
+https://www.shopcom.tn/product/forza-horizon-5-premium-edition/torrent-download
 
 Yanni Tribute torrent download link : (Product Price : 12 $) (Size : 1.41 GB)
 https://www.shopcom.tn/product/yanni-tribute-1997/torrent-download
