@@ -2,10 +2,10 @@
 
 Direct download links :
 
-Athkar Evening - أذكار المساء : (Product Price : Free) (Size : 439 MB)
+Athkar Evening - أذكار المساء download link : (Product Price : Free) (Size : 439 MB)
 https://www.shopcom.tn/product/athkar-evening/download
 
-Forza Horizon 5 Premium Edition : (Product Price : 100 $) (Size : 107.22 GB)
+Forza Horizon 5 Premium Edition download link : (Product Price : 100 $) (Size : 107.22 GB)
 https://www.shopcom.tn/product/forza-horizon-5-premium-edition/download
 
 Yanni Tribute download link : (Product Price : 12 $) (Size : 1.41 GB)
