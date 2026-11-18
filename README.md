@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Athkar Evening - أذكار المساء : (Product Price : Free) (Size : 439 MB)
+https://www.shopcom.tn/product/athkar-evening/download
+
 Forza Horizon 5 Premium Edition : (Product Price : 100 $) (Size : 107.22 GB)
 https://www.shopcom.tn/product/forza-horizon-5-premium-edition/download
 
@@ -231,7 +234,10 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 
 Torrent download links :
 
-Forza Horizon 5 Premium Edition : (Product Price : 100 $) (Size : 107.22 GB)
+Athkar Evening - أذكار المساء torrent download link : (Product Price : Free) (Size : 439 MB)
+https://www.shopcom.tn/product/athkar-evening/torrent-download
+
+Forza Horizon 5 Premium Edition torrent download link : (Product Price : 100 $) (Size : 107.22 GB)
 https://www.shopcom.tn/product/forza-horizon-5-premium-edition/torrent-download
 
 Yanni Tribute torrent download link : (Product Price : 12 $) (Size : 1.41 GB)
