@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Cocktail Kadim Al-Sahir – كوكتيل أجمل أغاني كاظم الساهر download link : (Product Price : 10 $) (Size : 87.7 MB)
+https://www.shopcom.tn/product/cocktail-kadim-al-sahir/download
+
 Athkar Evening - أذكار المساء download link : (Product Price : Free) (Size : 439 MB)
 https://www.shopcom.tn/product/athkar-evening/download
 
@@ -233,6 +236,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Cocktail Kadim Al-Sahir – كوكتيل أجمل أغاني كاظم الساهر torrent download link : (Product Price : 10 $) (Size : 87.7 MB)
+https://www.shopcom.tn/product/cocktail-kadim-al-sahir/torrent-download
 
 Athkar Evening - أذكار المساء torrent download link : (Product Price : Free) (Size : 439 MB)
 https://www.shopcom.tn/product/athkar-evening/torrent-download
