@@ -2,6 +2,9 @@
 
 Direct download links :
 
+Halima – Zied Gharsa | حليمة – زياد غرسة download link : (Product Price : 10 $) (Size : 135 MB)
+https://www.shopcom.tn/product/halima-zied-gharsa/download
+
 Cocktail Kadim Al-Sahir – كوكتيل أجمل أغاني كاظم الساهر download link : (Product Price : 10 $) (Size : 87.7 MB)
 https://www.shopcom.tn/product/cocktail-kadim-al-sahir/download
 
@@ -236,6 +239,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/download
 ------------------------------------------------------------------------------------------------
 
 Torrent download links :
+
+Halima – Zied Gharsa | حليمة – زياد غرسة torrent download link : (Product Price : 10 $) (Size : 135 MB)
+https://www.shopcom.tn/product/halima-zied-gharsa/torrent-download
 
 Cocktail Kadim Al-Sahir – كوكتيل أجمل أغاني كاظم الساهر torrent download link : (Product Price : 10 $) (Size : 87.7 MB)
 https://www.shopcom.tn/product/cocktail-kadim-al-sahir/torrent-download
